@@ -1,4 +1,5 @@
 # Two-Feet-From-Touching-Gold
+## So Start Stepping
 "Dan Lok https://www.youtube.com/watch?v=RNdRfSlQY-A Napoleon Hill https://www.selfhelpdaily.com/napoleon-hills-three-feet-from-gold/ More Gold Mined from Minds of Men than the Everything on Earth
 
 #"Success Lies on Razor Edge of Failure" Double Edged Sword Dan Lok https://www.youtube.com/watch?v=RNdRfSlQY-A 
